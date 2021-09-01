@@ -1,0 +1,1 @@
+Image for application logo sourced from: https://dribbble.com/shots/1017026-laugh-it-up
